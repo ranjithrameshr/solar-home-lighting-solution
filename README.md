@@ -61,7 +61,7 @@ solar energy, solar home lighting, renewable energy, eco friendly, green power, 
 
 💬 About the Project
 
-Solara System delivers simple, affordable, and effective solar solutions designed to help homeowners save energy, cut costs, and protect the planet.
+Solar System delivers simple, affordable, and effective solar solutions designed to help homeowners save energy, cut costs, and protect the planet.
 Our mission is to create cost-effective, eco-friendly products powered by renewable energy for a sustainable tomorrow.
 
 📞 Contact
