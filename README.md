@@ -66,7 +66,6 @@ Our mission is to create cost-effective, eco-friendly products powered by renewa
 
 📞 Contact
 
-📍 Jalan Bendungan Sutami, Sumbersari, Malang Kota 65145
 📧 ranjith20602@gmail.com
 
 📞 (+91) 95975 86322
